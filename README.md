@@ -10,6 +10,8 @@
 
 【地址三】https://fj009m.xyz
 
+咪兔秒播app下载地址http://5gcck2.youguangke.com
+
 推荐使用谷歌浏览器观看速度更快。
 
 QQ或者微信点不开以上链接请用手机浏览器打开！
